@@ -1,37 +1,36 @@
-# 🛠️ A&S International – Premium Wire Rope Grease & Industrial Lubrication Solutions
+# 🛢️ A&S International – Premium Wire Rope Grease & Industrial Lubrication Solutions
 
-At **A&S International**, we specialise in delivering high-performance **lubrication solutions** that help industrial clients around the world **reduce maintenance costs**, extend equipment life, and improve operational efficiency.
+At **A&S International**, we specialise in delivering **high-performance industrial lubricants** that help companies worldwide reduce maintenance costs, extend equipment life, and optimise performance.
 
-Our proprietary range, **MAK LUBES**, is engineered to meet the toughest demands of modern industry — including **eco-friendly wire rope greases**, **compressor & gear oils**, and **specialist maintenance lubricants**.
-
----
-
-## 🔧 Why Choose MAK LUBES?
-
-- Exceptional performance in **extreme industrial conditions**
-- Specially formulated **wire rope greases** that protect and prolong cable life
-- **Eco-conscious** options available without compromising performance
-- Backed by **100+ years** of combined lubrication industry expertise
-- Trusted in **global applications** across mining, marine, manufacturing, and more
-
-Whether you're looking to upgrade your current lubricant or solve a specific maintenance issue, **MAK LUBES** delivers the performance, protection, and peace of mind you need.
+Our flagship product range, **MAK LUBES**, is trusted by industries across the globe for its reliability, innovation, and environmental responsibility — including **wire rope greases**, **compressor oils**, **gear lubricants**, and more.
 
 ---
 
-## 🧪 Explore Our Range
+## 🔩 What We Offer
 
-- **MAXLUBES** – Advanced lubricants for compressors and gearboxes  
-- **Wire Rope Grease** – Including **environmentally friendly** formulations  
-- **Specialist Maintenance Lubricants** – Built for performance & reliability  
-- **Viper** – Innovative lubrication tools for safe & efficient wire rope greasing  
+- ✅ **Wire Rope Greases** – Including **eco-friendly formulations**  
+- ⚙️ **MAXLUBES** – Advanced oils for compressors & gearboxes  
+- 🔧 **Specialist Maintenance Lubricants** – Engineered for performance & longevity  
+- 🧰 **Viper Tools** – Game-changing lubrication tools for safer, more effective application
 
-> Every MAK LUBES product is tested and proven to help reduce wear, extend service intervals, and maximise uptime.
+> With over **100 years of combined industry experience**, our team understands the demands of harsh industrial environments and how to reduce costly downtime.
 
 ---
 
-## 🌍 Global Support, Local Expertise
+## 🌱 Why Choose MAK LUBES?
 
-We understand the pressures and precision required in industrial environments. With a growing global network, our team is ready to support your operations with the right solution, wherever you are in the world.
+- Developed for **challenging, real-world conditions**  
+- Designed to **reduce wear**, extend service intervals, and **lower operating costs**  
+- Supported by **global technical expertise**  
+- Used across **marine, mining, manufacturing, construction**, and more  
+- Proven to enhance **plant reliability** and **asset performance**
+
+---
+
+## 🌍 Global Reach, Local Expertise
+
+With a growing network of partners and clients worldwide, A&S International is committed to delivering the right lubrication solution — no matter where you are.  
+We don't just supply lubricants; we deliver results.
 
 ---
 
@@ -41,9 +40,9 @@ We understand the pressures and precision required in industrial environments. W
 📍 *The Old Brewery, 2 Brewery Court, High Street, Theale, RG7 5AH, United Kingdom*  
 📞 *+44 (0)118 930 4321*  
 📧 *hello@aands-international.com*  
-🌐 [aands.international](https://aands.international/)
+🌐 [aands.international](https://aands.international/)  
+📌 [View on Google Maps](https://maps.app.goo.gl/dMq4ABhuLddxw14g6)
 
 ---
 
-**Experience the difference that precision lubrication makes.**  
-**Choose MAK LUBES – where reliability meets performance.**
+**Extend your equipment life. Reduce your costs. Choose MAK LUBES by A&S International.**
